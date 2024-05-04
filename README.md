@@ -1,2 +1,4 @@
-# MDCBTC_Files
-Basically my light novel "My Driver can't be this Cute" but in file mode, with files for each character and stories that relate to the novel itself.
+# Introduction
+
+Since the founding of the Sentient motors foundation, we have to make a lot of files to keep up with all the cases of so called "Car Spirits". Hence we made this system shortly after the first few spirits that we found to document every incident that we had experienced and recorded.
+
