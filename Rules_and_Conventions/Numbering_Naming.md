@@ -10,3 +10,9 @@ This underlines the general rules for numbering and naming things.
 - > Extra Note: Due to Nekomi's number being `D-41`, his co-driver Mason's number shall be `D-44`
 
 Taking our first find the Ford Escort Cosworth RS as an example with designated number of: `SC-002`
+
+Names should be go after numbers. It can either be [Number][Name of Spirit] or [Number][Manufacturer][Model]
+
+Taking `SC-002` for example the two forms are
+
+`SC-002 Cossie` or `SC-002 Ford Escort Cosworth RS`
