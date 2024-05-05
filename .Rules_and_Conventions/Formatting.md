@@ -18,6 +18,7 @@ This section should include a list of:
 - Color
 - Birthday (If possible)
 - Designated counceler (Usually a driver but sometimes it can be a member of staff) (Previous ones should be included)
+- Status
 
 ## Appearance
 

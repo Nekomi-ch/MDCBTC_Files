@@ -1,0 +1,41 @@
+# SC-041(SC-) Subaru Impreza WRX
+
+## General info
+
+- **Manufacturer : Subaru
+- **Model** : Impreza WRX STI 22B
+- **Alias(es)** : Subie, WRX, Mountain Shogun, Rex, Onee-san(Mainly by Nekomi)
+- **Racing Class** : Group A
+- **Orgin** : Japan
+- **Color** : Blue
+- **Birthday** : 30/5/1993
+- **Designated counceler** : D-41 Nekomi
+- **Status** : ~~Rumoured~~ ~~Highly Dangerous~~ Befriended
+
+## Appearance
+
+She is a tall with a somewhat athletic look, wearing a blue and yellow baseball jacket with sports bra underneath. Having side striped shorts with socks with two white stripes on the top reaching slightly higher than knee level.
+Has a long ponytail for her blue hair and has one star shaped decoration for each side of hairband at eye-level.
+A white bandage on the nose can be seen.
+Blue eyes, pupils are observed to appear star shaped on occasion.
+
+## Description
+
+Arguably findings of the Spirit that resembles the Subaru Impreza WRX STI (or will be callled "Subie" for the rest of this document) dates back several years before the founding of said foundation.
+
+Attempts to record said information was used with **Project Dreamcatcher** with attempts to obtian Nekomi(D-41)'s lost memory of his so called "Master" through dream reading, and later through brainwave analysis. Which later find inconclusive due to lack of evidence. However, from Subie's accounts through ~~interrogation~~ interview confirms multiple findings throught Project Dreamcatcher.
+
+There had been sayings in the Japanese street racing scene that she only appears on challengers that are worth dueling over but she had managed to win everysingle time at the begining of our findings.
+
+An attempted battle is made through connections with Lancer(SC-) who is also deep in the street racing scene. Later which a mountain battle was held, having a duel with each of our three drivers one by one.
+
+Seb(D-77) and Tommi(D-12) were defeated with Tommi resulting in a close finish. At Nekomi's turn, he was able to overtake Subie in at least two occasions but it result in his car's engine failing, crashing and consenquently dissapearance of Nekomi which lasted for more than a month.
+
+Eventually Nekomi was able to return to the foundation with Subie with him with minor injuries, making the status from "Highly Dangerous" to "Friendly".
+This reunion resulting in confirming that Subie is indeed Nekomi's "Master" and later Nekomi proposed that she should be the one with the designated number "SC-041"
+
+## Supporting Documents
+
+- Interview Log with SC-041
+- Nekomi's Diary
+- SC-041 Proposal
