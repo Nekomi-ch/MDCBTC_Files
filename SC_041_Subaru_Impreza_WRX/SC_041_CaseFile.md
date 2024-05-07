@@ -2,7 +2,7 @@
 
 ## General info
 
-- **Manufacturer : Subaru
+- **Manufacturer** : Subaru
 - **Model** : Impreza WRX STI 22B
 - **Alias(es)** : Subie, WRX, Mountain Shogun, Rex, Onee-san(Mainly by Nekomi)
 - **Racing Class** : Group A
@@ -19,17 +19,26 @@ Has a long ponytail for her blue hair and has one star shaped decoration for eac
 A white bandage on the nose can be seen.
 Blue eyes, pupils are observed to appear star shaped on occasion.
 
+## Personality
+
+Subie is fond of anime and manga (Especially [REDACTED] charaters), likes sushi. Outgoing and assterive personality.
+
 ## Description
 
 Arguably findings of the Spirit that resembles the Subaru Impreza WRX STI (or will be callled "Subie" for the rest of this document) dates back several years before the founding of said foundation.
 
-Attempts to record said information was used with **Project Dreamcatcher** with attempts to obtian Nekomi(D-41)'s lost memory of his so called "Master" through dream reading, and later through brainwave analysis. Which later find inconclusive due to lack of evidence. However, from Subie's accounts through ~~interrogation~~ interview confirms multiple findings throught Project Dreamcatcher.
+Attempts to record said information was used with **Project Dreamcatcher** with attempts to obtian Nekomi(D-41)'s lost memory of his so called "Master" through dream reading, and later through brainwave analysis.
+Results were inconclusive due to lack of evidence.
+However, from Subie's accounts through ~~interrogation~~ interview confirms multiple findings throught Project Dreamcatcher.
 
-There had been sayings in the Japanese street racing scene that she only appears on challengers that are worth dueling over but she had managed to win everysingle time at the begining of our findings.
+Nekomi himself also keeps a record of his thoughts with the "Master" in one of his sketchbooks, with it titled **Blue Girl in Blue Car**, it was an effort of dealing with his mental health but it slowly turned into a way of trying to remember details of his past.
+
+There had been sayings in the Japanese street racing scene, that she only appears on challengers that are worth dueling over but she had managed to win everysingle time at the begining of our findings.
 
 An attempted battle is made through connections with Lancer(SC-) who is also deep in the street racing scene. Later which a mountain battle was held, having a duel with each of our three drivers one by one.
 
-Seb(D-77) and Tommi(D-12) were defeated with Tommi resulting in a close finish. At Nekomi's turn, he was able to overtake Subie in at least two occasions but it result in his car's engine failing, crashing and consenquently dissapearance of Nekomi which lasted for more than a month.
+Seb(D-77) and Tommi(D-12) were defeated with Tommi resulting in a close finish.
+At Nekomi's turn, he was able to overtake Subie in at least two occasions but it result in his car's engine failing, crashing and consenquently dissapearance of Nekomi which lasted for more than a month.
 
 Eventually Nekomi was able to return to the foundation with Subie with him with minor injuries, making the status from "Highly Dangerous" to "Friendly".
 This reunion resulting in confirming that Subie is indeed Nekomi's "Master" and later Nekomi proposed that she should be the one with the designated number "SC-041"
@@ -38,4 +47,21 @@ This reunion resulting in confirming that Subie is indeed Nekomi's "Master" and 
 
 - Interview Log with SC-041
 - Nekomi's Diary
-- SC-041 Proposal
+- Blue Girl in Blue Car
+- Project Dreamcatcher Logs
+
+## Comments
+
+**D-41 Nekomi** 
+`` Told you so. ``
+
+**SC- Alice**
+`` It seems that the results of **Project Dreamcatcher** isn't without its value. More research is needed. ``
+
+**D-44 Mason**
+`` Please take care of him when I am unable to do so. ``
+
+**SC- Lancer**
+`` I swear to god if I have to meet her again I will [REDACTED]. Can you believe what she has done to Neko?
+The first night they reunite, she [REDACTED] and then she [REDACTED]. Who in the right mind would [REDACTED].
+She is such a [REDACTED] ``

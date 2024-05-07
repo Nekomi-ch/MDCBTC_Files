@@ -24,6 +24,10 @@ This section should include a list of:
 
 This describes the general appearance of said spirit in human and car form. It needs to be as objective and simple as possible.
 
+## Personality
+
+This describes how the Spirit acts and behaves, likes and dislikes, any special needs that we need to look after. 
+
 ## Description
 
 Here, the process of the encounter will be written here. Processes, attempts, both successful and failed to contain or contact or made safe should be written, also as objective and simple as possible.
@@ -31,3 +35,7 @@ Here, the process of the encounter will be written here. Processes, attempts, bo
 ## Supporting documents
 
 It is highly encouraged for members of staff to collect as much data as ethically and practically feasible. While drivers who are the agents of contact should be encouraged to keep a journal which can be used as additional files.
+
+## Comments
+
+A section for drivers, staff and spirits to add some information that might be nessesary for future refrence.
