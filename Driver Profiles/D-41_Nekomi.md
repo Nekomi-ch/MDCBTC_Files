@@ -41,4 +41,4 @@ Adjustments include
 Despite his shortcomings, he is able to demonstrate great abilities in controlling a car that is prone to oversteer.
 He did this by using it to his advantage and having a drift driving style.
 Not only that his boldness in his driving totally contridicts his personality. (Posibily inspired by Collin McRae)
-From his words, he thinks that this is due to teachings of his master. ~~Which we hypothosise it is an alter-ego in his neurodivergent brain telling him what to do but some theorise that~~ said "master" ~~may~~ actually exsist. (See **Project 41**)
+From his words, he thinks that this is due to teachings of his master. ~~Which we hypothosise it is an alter-ego in his neurodivergent brain telling him what to do but some theorise that~~ said "master" ~~may~~ actually exsist. (See **Project 41** and **SC-041**)
