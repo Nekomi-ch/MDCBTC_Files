@@ -39,7 +39,34 @@ Right now, she gave me a cup of milk then urges me to take a shower and go to sl
 ## March 29
 
 Oh wow... How do I explain to myself what just happened to me last night. Quite frankly, I got introduced into a new world and it was fantastic.
-I am not to sure but... did I 
+I am not to sure but... did I...
 
 [MULTIPLE PARAGRAPHS HAS BEEN REDACTED]
 
+Enough rambling for now, I woke up between my master's arms, thought I was paralysed for a while just to realise she had hold me tight during the whole sleep.
+Yes she not only has a large body, she also has large strengh.
+Hey at least she was gentle with me, and honestly, she had a massive glow-up if I can remember how she used to be like.
+
+Honestly I still can't believe this is true that I can actually get to reunite with my master.
+Even more so the fact that she is one of the car spirits, a hard one to find at that.
+Given this circumstances, I feel like I should do some undercover investigation as I write this down to have better information.
+
+If you think about it... I might be the first one who have had contact with one of those.
+
+Anyways, when I try to wake up she said that she wanted to cuddle for a bit longer insead of getting off the bed.
+To be fair her body feels very warm and soft at the moment, so I simply got myself back to sleep for a bit before us both wake up.
+
+We then... well its more like she lifted me up, hugged me and walked me to her bathroom.
+Taking a warm bubble bath together with a clear mountain view outisde the large window, is such a great experience.
+As we continue off our fun from last night, we...
+
+[MULTIPLE PARAGRAPHS HAS BEEN REDACTED]
+
+...felt gently violated but it felt so nice that I have to let her do her thing.
+I believe Lancer has warned me her "tendences", but hey... why she even wanted to threaten me with a good time.
+Not only that, I did place a bet of letting her do whatever she wanted to me right before the race, and my Skoda caught on fire so she won by default.
+Also I need to pay her back from saving my life really...
+
+Well after all that, we helped each other to wear our clothes, dried each other's hair, and I am as clean as I can.
+
+`Note to self: She does have a nice smelling shampoo, might buy it if I can even find it.`
