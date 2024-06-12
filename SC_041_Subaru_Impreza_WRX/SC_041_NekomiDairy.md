@@ -70,3 +70,62 @@ Also I need to pay her back from saving my life really...
 Well after all that, we helped each other to wear our clothes, dried each other's hair, and I am as clean as I can.
 
 `Note to self: She does have a nice smelling shampoo, might buy it if I can even find it.`
+
+While I was making her breakfast, my signature scrambled eggs on toast of course.
+I can't help myself but to wonder, why did she gave me my yellow hair bands in the first place.
+So of course I had to ask her when I finished making it.
+
+It turns out it belongs to the "Comet Squad", which are a group of people that have either contributed lots for the "Shogun" (Which is my "Onee-san" in my case), and also people that showed great potential and acts as a blessing.
+In my missions with the Foundation, I have recieved different types of recognition and titles from powerful spirits, 
+I even have one from the Lancia mafia family from that one time I have gone undercover, becoming one of their members apparently.
+
+Yet this is the first time I have heard of this title, and I heard that it is revered among Japanese siprits.
+Maybe this is why I got weird looks and suspicions given how clueless I am.
+And maybe this is why the Fairlady has said that I was both cursed and blessed, saying that these bands gave me harsh times growing up,
+but this would eventually repay you in the long run.
+This might explain why it took me so many years just to see her again.
+Not only that this is the first as well.
+
+Right now my body is filled with bruises.
+Not from the accident last night, but its Subaru-chan being... well Subaru-chan.
+Giving me all those "love-marks" just so I don't forget about her this time.
+Such a massive pervert... or I would like to say: Onee-san... ecchi...
+
+## March 31
+
+Alright, right now I have made a mental list of things that the foundation that definitely needs to know about.
+Given the lack of information that we originally got, I will jot down things on this diary, so that things can be easier when I write this report.
+
+Firstly, she loves anime. I mean not like people who just watches anime on occasion, or like me who draws every now and then.
+She really, really loves anime, like...
+She has a whole collect of manga, with some figures as well.
+Not only that when I looked into some of them, there are a sizeable amount of BL.
+Surpringly she somehow manages to still make all of that look tidy.
+
+Secondly, I just really noticed just recently.
+Every now and then she speaks or starts to say something.
+Subaru-chan just says "Ara~ara"
+I have no idea what that means but it does have a flirty tone to it I got to admit.
+
+Thirdly, we know from Lancer-chan that she can get frisky sometimes.
+As a whole team, we certanly have encounted spirits with wildly different personalities.
+Some can be timid and pure while some can get flirty, and its our job to cater to their needs.
+
+However this... 
+I swear, it feels like she is like three standard deviations away from the norm.
+A total nymphomaniac.
+I can barely keep up with all those "Night lessons" she is giving me.
+And when my skin started to heal, she is going to make some more.
+But hey, she does have a nice body so I ain't complaining.
+Besides, I do feel like I always wanted to get closer to her throughout this journey.
+Not only that, I have been kiss-less, hug-less, touch-less for most of my life,
+so everynight when we sleep together, I do feel like someone is willing to stay close to me.
+
+Right now... I haven't told her this yet but tommorow is actually my birthday.
+Just as a test of the extent of how much she do remember about me I am not going to say a thing and see how things goes.
+Oh well, hope its going to be good tommorow.
+
+
+## April 1 (Birthday)
+
+
