@@ -128,4 +128,5 @@ Oh well, hope its going to be good tommorow.
 
 ## April 1 (Birthday)
 
-
+At first I woke up as usual, in her bed, cuddled together.
+(Yes we are both naked as well)
