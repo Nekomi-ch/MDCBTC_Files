@@ -1,4 +1,4 @@
-# Nekomi's Dairy
+# Nekomi's Diary
 
 ## March 28
 
@@ -128,5 +128,23 @@ Oh well, hope its going to be good tommorow.
 
 ## April 1 (Birthday)
 
-At first I woke up as usual, in her bed, cuddled together.
+At first I woke up as usual, in her bed, cuddled together, but a bit leter than usual.
 (Yes we are both naked as well)
+Not gonna lie I think I started to like her more these days.
+Before I can even prepare myself to make brunch(Its like 1100 at this point), she hold me back and said,
+"We got something to do today, let me bring you somewhere."
+As she used me to get ready, she also told me that I would be driving this time.
+
+Wait didn't my car got destoryed a couple of days ago.
+
+It seems that she wasn't joking, she is making me to drive her (car).
+
+Again through this mission I have experienced many kinds of cars,
+but this is different.
+This time I tried approaching it I somehow feel surreal in some way.
+I feel easier while dealing the murderous Delta S4 than this 22B
+Usually everytime I can experience a new car I just get excited and just hop straight in.
+Now I seem froze right before touching the handle.
+
+Maybe its just so happen to be the one my once mysterious master drive.
+
