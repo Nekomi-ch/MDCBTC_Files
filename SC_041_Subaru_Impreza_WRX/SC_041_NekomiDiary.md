@@ -147,4 +147,60 @@ Usually everytime I can experience a new car I just get excited and just hop str
 Now I seem froze right before touching the handle.
 
 Maybe its just so happen to be the one my once mysterious master drive.
+Or maybe this is also the car that left me behind years ago, and I was scared.
 
+"Ara-ara don't be shy, I think it's time to show me what you got." I remember her saying
+I did get myself to open the car door and get a look inside,
+just to see the same old interior that I think I sat in.
+If I wasn't mistaken, she was cuter back then, but less sexy I suppose, and I was just a little guy barely know how to drive.
+But this time, I was going to sit on the same seat that she normally sits on.
+
+When I get to sit in it, it seems like I am very used to it.
+Arguably it feels as comfotable as my previous car.
+Yet, I feel like this is a completely new thing for me.
+
+Then I slowly start the car,
+hit the clutch, rev it a bit,
+put it in gear and let it flow.
+This time unlike every car I tried, it seems perfectly suits me.
+It just flows, I don't have other thing to say other than it just suits me from the start.
+
+She of course showed me the directions for the place and we ended up in a sushi restaurant.
+There is a lot of good Japanese food but this is definitely my favourite.
+She let me order what I want and the chef makes the tasty pieces of fish on rice infront of me.
+Tried sushi many times and yet this still manages to amaze me.
+
+"Are you supposed to day something darling" she said.
+I really, really wanted to say to her the fact that it is my birthday, but I wanna keep it a surprise.
+I just replied that the food is great.
+Because even though she might not know, and I am away from my friends and family in the middle of a foreign nation.
+This is alreadly a great day to go for my birthday.
+
+"Alright then, lets talk somewhere else."
+After I just finished my meal, she paid for it and picked me up to her car.
+She is the one driving by the way.
+
+We then got near a river with a lot of cherry blossom trees on both sides.
+Somehow despite this view, I am surpiried that she managed to find a place where not many people are viewing at the same time.
+From what I heard they tend to get very crowded.
+
+I was at awe to see how nice this view can really be.
+Then she told me, that the STI badge used to be pink, and its based on those flowers.
+She also said that this always about how life is short, but it will always be new or something of that sort.
+But in the middle of those facts, she then said.
+"I always wanted to see that time you finally bloom, I belive I came just on time."
+
+"Tanjoubi Omedetou Nekomi-kun, Happy birthday Nekomi!"
+"Or maybe even 'Sang Yat Fai Lok'?"
+
+As I looked into the endless sea of flowers while she hugged me from the back.
+Getting all teary eyed.
+Knowing this could dissapear at any time, I wanted her to stay with me as long as god allows.
+Not a birthday I expected but one that will remember.
+
+For reminding me how I came to be:
+"Arigato nee-san."
+
+``PS She then revealed that she had a slight recollection of when's my birthday but she wasn't sure, 
+but all she knows is that I left the calander of my diary open on the table with BIG LETTERS on today.
+GOD I AM AWFUL AT KEEPING SECRETS.``
