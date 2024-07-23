@@ -108,7 +108,7 @@ Subaru-chan just says "Ara~ara"
 I have no idea what that means but it does have a flirty tone to it I got to admit.
 
 Thirdly, we know from Lancer-chan that she can get frisky sometimes.
-As a whole team, we certanly have encounted spirits with wildly different personalities.
+As a whole team, we certanly have encountered spirits with wildly different personalities.
 Some can be timid and pure while some can get flirty, and its our job to cater to their needs.
 
 However this... 
