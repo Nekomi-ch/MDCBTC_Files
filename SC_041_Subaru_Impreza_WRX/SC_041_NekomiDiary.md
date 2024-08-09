@@ -10,7 +10,7 @@ But I did remember one thing from that, for a moment I felt like I am being carr
 Not much I can say about that.
 
 On the other hand that is the worst news I can really write in this notebook right now.
-Can you believe I have to resort to the pacenotes book in my pocket right now?
+Can you believe I have to resort to the pace notes book in my pocket right now?
 Hope Mason won't mind.
 
 Well the person that... or I should say... my master...
